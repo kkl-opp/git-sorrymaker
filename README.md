@@ -1,2 +1,2 @@
 # git-sorrymaker
-嘻嘻哈哈
+have a nice day!
